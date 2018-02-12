@@ -1,2 +1,2 @@
-# shrimps
+# croissants
 Logos
